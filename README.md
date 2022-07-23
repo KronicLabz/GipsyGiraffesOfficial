@@ -1,0 +1,2 @@
+# GipsyGiraffesOfficial
+Gypsy Giraffes is a unique digital 3D collectibles collection spending their lives traveling around from place to place in the blockchain world with the combination of unique characteristics, different traits in stylish outfits. They are fun-loving and like to eat everything vegetarian. Aren't they the cutest ? So, own a Gypsy Giraffe and spread some cuteness in this crypto world. 
